@@ -1,4 +1,4 @@
-
+![logo](https://github.com/CH2-PR636/CH2-PR636/blob/main/Untitled%20design.png)
 <h1 align="center">EcoPilah</h1>
 <h3 align="center">Let's create a zero-waste living environment</h3>
 
