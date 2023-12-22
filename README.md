@@ -37,11 +37,11 @@ Concern for the environment. The green colour can create the impression of being
 Bright and fresh green can symbolise hope and optimism to create a clean and healthy environment.
 A dark green colour can symbolise seriousness and commitment to dealing with waste issues.
 
-Filosofi warna Kuning
+Yellow colour philosophy
 
-Warna kuning merupakan warna yang cerah dan menarik perhatian. Warna kuning sering dikaitkan dengan kebahagiaan, keceriaan, dan optimisme.
+Yellow is a bright and eye-catching colour. It is often associated with happiness, cheerfulness, and optimism.
 
-Dalam konteks sampah dan alam, warna kuning dapat memiliki filosofi sebagai berikut:
-Keceriaan dan optimisme. Warna kuning dapat menimbulkan kesan positif dan energik. Penggunaan warna kuning ini kami ambil yang  bergerak di bidang lingkungan hidup dan pengelolaan sampah dapat menunjukkan semangat dan optimisme mereka untuk mengatasi masalah sampah dan menjaga kelestarian alam.
-Kreativitas dan inovasi. Warna kuning juga dapat melambangkan kreativitas dan inovasi. diharapkan dapat memberikan solusi baru untuk mengatasi masalah sampah.
-Warna kuning yang cerah dan menarik perhatian dapat digunakan untuk menarik perhatian masyarakat terhadap masalah sampah dan lingkungan hidup.
+In the context of waste and nature, the colour yellow can have the following philosophies:
+Cheerfulness and optimism. The colour yellow can create a positive and energetic impression. The use of this yellow colour we take that is engaged in the environment and waste management can show their enthusiasm and optimism to tackle the waste problem and preserve nature.
+Creativity and innovation. The colour yellow can also symbolise creativity and innovation, which is expected to provide new solutions to the waste problem.
+The bright and eye-catching yellow colour can be used to draw people's attention to waste and environmental issues.
